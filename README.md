@@ -2,7 +2,7 @@
 - 👀 I’m interested in music, coding, and self-improvement
 - 🌱 I’m currently learning about machine learning and data science
 - 💞️ I’m looking to collaborate on beginner projects
-- 📫 How to reach me? in my email jr4907607@gmail.com
+- 📫 How to reach me? in my email juliansantiago.reyespinzon@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am a licensed pharmacy tech
 
